@@ -1,1 +1,1 @@
-# liangwangzhong.github.io
+# liangwangzhong.com
